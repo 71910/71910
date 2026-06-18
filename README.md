@@ -1,1 +1,1 @@
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=angelweep&label=　　<lohen3　🦠　　　&color=194569&style=flat" alt="angelweep" />
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=angelweep&label=　　<lohen3　🫧　　　&color=194569&style=flat" alt="angelweep" />
