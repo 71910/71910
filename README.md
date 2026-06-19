@@ -1,6 +1,6 @@
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=angelweep&label=　　<lohen3　🫧　　　&color=194569&style=flat" alt="angelweep" />
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Henny+Penny&pause=1000&color=194569&width=435&lines=im+waiting+for+your+call=boolean=true)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?boolean=true&font=Henny+Penny&pause=1000&color=194569&width=435&lines=im+waiting+for+your+call)](https://git.io/typing-svg)
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Mystery+Quest&pause=1000&color=cadeed&width=435&lines=and+im+ready+to+take+your)](https://git.io/typing-svg)
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Ribeye&pause=1000&color=97dde1&width=435&lines=sweet+666+in+my+heart)](https://git.io/typing-svg)
 >[!NOTE]
