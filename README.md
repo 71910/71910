@@ -8,7 +8,6 @@
 ![h](https://files.catbox.moe/leypkl.png)
 ![h](https://files.catbox.moe/wpzq80.png)
 ![h](https://files.catbox.moe/leypkl.png)
-![h](https://files.catbox.moe/bjjccx.png)
 ![h](https://files.catbox.moe/leypkl.png)
 ![h](https://files.catbox.moe/wpzq80.png)
 ![h](https://files.catbox.moe/leypkl.png)
