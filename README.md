@@ -10,6 +10,6 @@
 
 
 >![h](https://files.catbox.moe/ncs60m.png)
->[<img src="https://files.catbox.moe/52r3mk.png">](https://71910.atabook.org//)
+>[<img src="https://files.catbox.moe/52r3mk.png">](https://71910.atabook.org////)
 
 >![h](https://files.catbox.moe/ovbwd2.png)
